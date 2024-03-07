@@ -1,12 +1,13 @@
-![4djazxid8ICO0qEcyGUKG0k](https://github.com/FurkanTsdmr/Yar-ma-Resim/assets/66878884/a486efc6-6239-430d-9851-432d5b3f16b5)
+![4djazxid8ICO0qEcyGUKG0k](https://github.com/FurkanTsdmr/Yarisma-Resim/assets/66878884/cb1cb65a-c6f0-414b-a7f6-720fb66976b9)
 
 <hr>
 
-![1CrIGL19vaIUoE64sqiOu](https://github.com/FurkanTsdmr/Yar-ma-Resim/assets/66878884/4db8f6b8-745f-40b8-a892-198a691ac091)
+![4dj9gR6QbSooUAMygaKEuE0-removebg-preview](https://github.com/FurkanTsdmr/Yarisma-Resim/assets/66878884/34e954e9-92f8-44ff-a8ad-e405de6d6e1c)
 
 <hr>
 
-![4dj9gR6QbSooUAMygaKEuE0-removebg-preview](https://github.com/FurkanTsdmr/Yar-ma-Resim/assets/66878884/30d30c5f-a17f-47bc-beca-49b1c22a7bcd)
+![1CrIGL19vaIUoE64sqiOu](https://github.com/FurkanTsdmr/Yarisma-Resim/assets/66878884/f7c76e86-2b5c-4166-b63b-57b09ebb0a98)
+
 
 <hr>
 
