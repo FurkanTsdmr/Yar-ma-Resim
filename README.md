@@ -12,3 +12,7 @@
 <hr>
 
 ![qr_image](https://github.com/FurkanTsdmr/Yar-ma-Resim/assets/66878884/9eca90df-c76a-4915-b3f3-73691a4bf374)
+
+<hr>
+
+![Screenshot 2024-07-05 1108452312313](https://github.com/user-attachments/assets/726b3fbd-79f2-4a7e-a393-d5fedf7c3341)
